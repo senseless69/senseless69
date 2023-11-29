@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @senseless69
 - 👀 I’m interested in discord moderator and bot tester / admin jobs
-- 🌱 I’m currently learning BTech
 - 📫 How to reach me - divyanshut688@gmail.com
 
 <!---
